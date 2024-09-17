@@ -5,7 +5,7 @@
 ---
 
 ### 🔗 Conéctate conmigo:
-[LinkedIn](https://www.linkedin.com/in/michelle) | [Email](mailto:mich.ia@hotmail.com) | [GitHub](https://github.com/tuusuario)
+[LinkedIn](www.linkedin.com/in/michelle-rodriguez-lara) | [Email](mailto:mich.ia@hotmail.com) | [GitHub](https://github.com/MichelleeLara)
 
 ---
 
@@ -85,6 +85,6 @@
 ---
 
 ### 📫 **¿Cómo contactarme?**
-Puedes conectarte conmigo a través de [LinkedIn](https://www.linkedin.com/in/michelle) o enviarme un [correo electrónico](mailto:mich.ia@hotmail.com).
+Puedes conectarte conmigo a través de [LinkedIn](https://www.linkedin.com/in/michelle-rodriguez-lara) o enviarme un [correo electrónico](mailto:mich.ia@hotmail.com).
 
 ¡Gracias por visitar mi perfil! 🚀
